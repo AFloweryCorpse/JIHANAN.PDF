@@ -15,6 +15,7 @@ RPDNI (Roleplay Do Not Interact; Even if I'm Cosplaying, I don't like to Rolepla
 TC (Touch Comfort)
 
 INT Football, GTA, Kirby, FPE, TLOZ, Pokémon, Mario; or just Interact no matter if you're or not from my Fandoms (Self Explanatory)
+
 DNI Problematic Fandoms (Self Explanatory)
 
 ---------------------------------
