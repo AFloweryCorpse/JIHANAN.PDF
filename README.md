@@ -19,28 +19,19 @@ DNI Problematic Fandoms (Self Explanatory)
 
 ---------------------------------
 
-***Characters I play as + In-game Name, Fandom they're from, and Appearance:***
+***Characters I play as + In-game Name and Appearance:***
 
-Raichu (⚡💛 . RAICHU ☆) <Pokémon>
-
-Scream Tail (💥🩷. SCREAM TAIL ☆) <Pokémon>
-
-Mewtwo (🔮💜 . MEWTWO ☆) <Pokémon>
-
-Mega Swampert (MEGA SWAMPY) <Pokémon>
-
-Decidueye (DECIDUEYE /or/ DECIDUEYE (NOT FLYING) <Pokémon>
-
-Xerneas (X CHROMOSOME /or/ X CHROM. NEUTRAL) <Pokémon>
-
-Rosalina (` ROSALINA ;.🌌🌟) <Super Mario
-
-Johnny Klebitz (JOHN K. ! 🖤⛓️) <GTA>
-
-Lucia (LUCIA ! 🌺✨️) <GTA>
-
-Luka Modrić (✧✧ lukita ! ♡) <Football>
-
-Sergio Ramos (✦✦ . S3RG1Ø R4MØZ !) <Football>
-
-Goat (Real Greatest of all Time) <No Fandom>
+![image](https://github.com/user-attachments/assets/eaa1302e-bc0f-4075-a97e-8a25c77c0150)
+![image](https://github.com/user-attachments/assets/620b8271-ce26-4329-a0b1-d2afdda36a2e)
+![image](https://github.com/user-attachments/assets/4e55972c-70c3-4839-a444-61224e1659bc)
+![image](https://github.com/user-attachments/assets/1d4c833b-6e48-4439-9fce-f4b074248694)
+![image](https://github.com/user-attachments/assets/80e629cc-adc6-478e-a300-35ad3dc14502)
+![image](https://github.com/user-attachments/assets/aec4512f-a903-4923-99aa-09bc38d1e904)
+![image](https://github.com/user-attachments/assets/67d5776f-62b3-4d26-b6b5-e16bb1108240)
+![image](https://github.com/user-attachments/assets/561a2066-34db-4ab6-8490-8e213c46fb3d)
+![image](https://github.com/user-attachments/assets/19151247-aca6-4b2d-99de-aee37991d919)
+![image](https://github.com/user-attachments/assets/e9e4c420-4c07-417d-bb80-f3cdd4cc726e)
+![image](https://github.com/user-attachments/assets/63752ff6-4b21-485c-995b-9941b817efcd)
+![image](https://github.com/user-attachments/assets/578807ea-a9cd-4a2f-a04b-e89b2d395473)
+![image](https://github.com/user-attachments/assets/89adb747-6fa4-4d81-89b7-e1ded414b4d7)
+![image](https://github.com/user-attachments/assets/abb53277-48b9-4c2d-81ba-3798b1e3c481)
