@@ -36,3 +36,5 @@ DNI Problematic Fandoms (Self Explanatory)
 ![image](https://github.com/user-attachments/assets/578807ea-a9cd-4a2f-a04b-e89b2d395473)
 ![image](https://github.com/user-attachments/assets/89adb747-6fa4-4d81-89b7-e1ded414b4d7)
 ![image](https://github.com/user-attachments/assets/abb53277-48b9-4c2d-81ba-3798b1e3c481)
+
+I don't have a Specific location where you can find me easily, as I'm everywhere around the map, but if you managed to find me (which is why you're here) then Congrats, you can befriend me if you'd like, I'm lonely ;)
